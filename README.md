@@ -1,1 +1,2 @@
-#Curricula Vitae
+Philosophical Interests include:
+
